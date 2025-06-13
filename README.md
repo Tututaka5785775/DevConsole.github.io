@@ -1,1 +1,2 @@
-# DevConsole.github.io
+# READ THE LEGAL NOTICE ABOUT IDEAS AND CONTENT
+         
